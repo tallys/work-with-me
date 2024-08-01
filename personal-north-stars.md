@@ -1,6 +1,4 @@
-# work-with-me
-
-## FY25 Personal North Stars ⭐Refresh
+# Personal North Stars ⭐ Refresh
 This is a refresh for FY25 of my approach to management and creating an environment for creativity and growth.  It’ll come as no surprise that my north stars are inspired by my graduate studies, especially the research of Teresa Amabile and Mihaly Csikszentmihalyi.
 ### ⭐ Purpose and Clarity
 At The New York Times I internalized a powerful principle: speak truth to power. Know your principles, your standards, and what you’re in pursuit of. I will always have your back if you are coming in good faith in pursuit of craft and quality. Ultimately, each task we undertake should be guided by clear and meaningful goals. I believe in the power of purpose to fuel focus and help guide decisions. If ever the direction feels unclear, or in some way against the principles you work with, let’s talk about it.
